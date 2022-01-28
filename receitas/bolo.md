@@ -1,5 +1,5 @@
-# Bolo de MADEIRA KKKKKK
-## Aprenda a fazer um bolo durasso e gostoso. 🥣
+# Bolo MADEIRA
+## Aprenda a fazer um bolinho gostoso 🥣
 
 ### Ingredientes
 - 113 g de manteiga sem sal, amolecida
