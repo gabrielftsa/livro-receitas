@@ -1,4 +1,4 @@
-# Livro de receitas 
+# Livro de receitas (atividade)
 ## Olá, bem-vindo ao meu ebook de receitas
 
 ### Receitas:
